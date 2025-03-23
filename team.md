@@ -1,1 +1,1 @@
-Team lead: AGGIE
+Team lead: AGGIE - THE OG
